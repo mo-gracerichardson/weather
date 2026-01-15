@@ -2,8 +2,8 @@
 
 ## Today
 
-Cloudy with a chance of pizza
+Cloudy with a chance of sun
 
 ## Tommorrow
 
-Big falling meatballs followed by sunshine
+Heavy rain followed by sunshine
